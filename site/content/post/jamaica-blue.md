@@ -1,28 +1,45 @@
 ---
-title: 'Just in: small batch of Jamaican Blue Mountain in store next week'
-date: 2017-01-04T15:04:10.000Z
-description: >-
-  We’re proud to announce that we’ll be offering a small batch of Jamaica Blue
-  Mountain coffee beans in our store next week.
+title: Anak Muda Berbagi Cerita Pengalaman Bodoh yang Paling Bikin Mereka Tekor
+date: 2022-07-26T06:56:50.504Z
+description: "Ini bukan karena sekadar kalap belanja sampai saldo di rekening
+  terasa minus. Contoh: lupa check-in sebelum naik pesawat, ada juga yang
+  diputusin setelah menghadiahi pacar konsol game mahal."
+image: img/gambar_2022-07-26_135710665.png
 ---
+Mengelola keuangan susah-susah gampang. Kita menyadari pentingnya menyisihkan sebagian penghasilan untuk ditabung, dan paham betul betapa buruknya sifat boros. Kita juga harus cerdas menyiasati pengeluaran agar kebutuhan tetap terpenuhi hingga akhir bulan. Menghambur-hamburkan uang untuk hal yang gak guna hanya akan merugikan diri sendiri, dan lebih parah lagi, kita bisa terlilit utang karenanya.
 
-We expect the shipment of a limited quantity of green beans next Monday. We’ll be offering the roasted beans from Tuesday, but quantities are limited, so be quick.
+Sayangnya, kita kerap bertindak impulsif dan melupakan akal sehat ketika sudah menginginkan sesuatu. Duit hasil jerih payah raib dalam sekejap, yang tersisa hanyalah segudang penyesalan. Kita akhirnya cuma bisa mengutuk kebodohan diri sendiri.
 
-Blue Mountain Peak is the highest mountain in Jamaica and one of the highest peaks in the Caribbean at 7,402 ft. It is the home of Blue Mountain coffee and their famous tours. It is located on the border of the Portland and Saint Thomas parishes of Jamaica.
+Namun, seperti kata pepatah, sepandai-pandainya manusia, suatu saat pasti pernah melakukan kesalahan. Dan kesalahan ini terkadang menyebabkan kerugian yang begitu besar. VICE meminta tujuh anak muda menceritakan pengalaman buruk yang paling bikin mereka manyun soal uang.
 
-## A little history
+## “Saya ketinggalan pesawat gara-gara lupa check-in”
 
-The Blue Mountains are considered by many to be a hiker's and camper's paradise. The traditional Blue Mountain trek is a 7-mile hike to the peak and consists of a 3,000-foot increase in elevation. Jamaicans prefer to reach the peak at sunrise, thus the 3–4 hour hike is usually undertaken in darkness. Since the sky is usually very clear in the mornings, Cuba can be seen in the distance.
+Saya hendak melakukan penerbangan pulang dari Brisbane, Australia ke Manila. Sebenarnya saya tiba di bandara empat jam lebih awal, dan saya memilih mengisi perut di McDonald’s sambil nonton Netflix untuk menunggu saatnya terbang. Saya sering mengecek jam supaya tidak kebablasan. Saya menuju gerbang terminal sekitar 10 menit sebelum jadwal keberangkatan. Baru ketika tas saya diperiksa petugas, saya tersadar belum check-in. Saya bergegas mendatangi konter sambil menarik koper. Tapi sesampainya di sana, penjaga konter bilang saya sudah tidak bisa mengambil tiket. Ya, 300 dolar (Rp4,48 juta) terbuang sia-sia. Sialnya lagi, uang peganganku hanya cukup untuk beli makan dan naik Grab. — Sachiko Zorrilla, 28 tahun
 
->Some of the plants found on the Blue Mountain cannot be found anywhere else in the world and they are often of a dwarfed sort.
+## “Kami putus setelah saya menghadiahkannya konsol game”
 
-This is mainly due to the cold climate which inhibits growth. The small coffee farming communities of Claverty Cottage and Hagley Gap are located near the peak.
+Saya baru pertama kali pacaran saat berusia 22 tahun. Cowokku dulu gemar main video game, sehingga saya terpikir menghadiahkannya konsol game di hari Natal. Kebetulan dia habis menjual konsol miliknya untuk keperluan pribadi. Saya yakin kado berharga lima juta itu akan berguna dan dapat mengobati kesedihannya. Tapi nyatanya, konsol game pemberianku tak terpakai sama sekali. Barang itu terbengkalai di pojok kamar hingga berdebu. Dia lalu menukarkannya dengan konsol lain, tapi itu pun tidak pernah digunakan karena hobi dan prioritasnya telah berubah. Kami putus setahun kemudian. — Aria Gonzales, 27 tahun
 
-## What you need to know before trying
+## “Investasi kami rugi 60 persen”
 
-Jamaican Blue Mountain Coffee or Jamaica Blue Mountain Coffee is a classification of coffee grown in the Blue Mountains of Jamaica. The best lots of Blue Mountain coffee are noted for their mild flavor and lack of bitterness. Over the past few decades, this coffee has developed a reputation that has made it one of the most expensive and sought-after coffees in the world. Over 80% of all Jamaican Blue Mountain Coffee is exported to Japan. In addition to its use for brewed coffee, the beans are the flavor base of Tia Maria coffee liqueur.
+Tahun lalu, saya dan teman menanamkan uang di sebuah platform trading online. Kami puas melihat hasilnya selama beberapa bulan pertama, sehingga memutuskan berinvestasi lebih banyak. Sekonyong-konyong bursa anjlok, dan kami rugi 60 persen kurang dari 24 jam. — Joseph Tuvilla Jr., 28 tahun
 
-Jamaican Blue Mountain Coffee is a globally protected certification mark, meaning only coffee certified by the Coffee Industry Board of Jamaica can be labeled as such. It comes from a recognized growing region in the Blue Mountain region of Jamaica, and its cultivation is monitored by the Coffee Industry Board of Jamaica.
+## “Tabunganku ludes demi punya teman”
 
-The Blue Mountains are generally located between Kingston to the south and Port Antonio to the north. Rising 7,402 ft, they are some of the highest mountains in the Caribbean. The climate of the region is cool and misty with high rainfall. The soil is rich, with excellent drainage. This combination of climate and soil is considered ideal for coffee.
+Saya menabung sejak kecil dan telah mengumpulkan lebih dari lima juta hingga masuk kuliah. Saya lalu menguras seluruh isi tabungan, yang susah payah kuperoleh, supaya bisa punya teman di kampus. Saya tidak mau sendirian, sehingga saya selalu ikut tiap ada yang mengajak makan dan minum-minum di luar. Itu tahun pertamaku kuliah.
 
+bu marah besar saat mengetahui simpananku tak bersisa sepeser pun. Saya sadar telah melakukan kesalahan, dan lama-lama memahami bahwa suatu saat nanti saya pasti akan mendapatkan teman yang klop. Tak semua orang peduli apa latar belakangmu. Apabila kamu tidak dapat mengikuti gaya hidup orang lain, itu artinya kamu perlu mencari teman lain yang membuat kamu merasa nyaman dan siap menerimamu apa adanya. — Anonim
+
+## “Saya tak sempat main game saking sibuknya dengan pekerjaan”
+
+Di awal pandemi, saya memantapkan hati untuk membeli komputer gaming lengkap yang harganya mencapai Rp26 jutaan. Saya mengira akan punya banyak waktu luang untuk bermain game selama bekerja di rumah. Tapi kenyataannya, saya jarang sekali menggunakan komputer itu karena bekerja secara jarak jauh lebih menyita waktu. Kayaknya saya hanya menyalakan komputer seminggu sekali. Itu pun cuma menonton film atau video YouTube. Saya keburu stres oleh pekerjaan, sehingga tak punya energi untuk main game role-play dan esport. — Carlo Yaptinchay, 26 tahun
+
+## “Hasil jualan yang ia lakukan diam-diam dipakai buat beli rumah”
+
+Kami menjalankan usaha dari rumah selama pandemi, dan memiliki gudang penyimpanan sekitar 14 kilometer jauhnya. Karena tidak memungkinkan untuk pergi ke sana, kami pun menitipkan gudang pada karyawan yang kebetulan tinggal di sana. Dia telah dipercaya mengurus segalanya, dari persediaan hingga pengiriman uang.
+
+Kami baru bisa mengunjungi gudang setahun kemudian, setelah lockdown dilonggarkan. Banyak produk jadi yang hilang. Selain itu, kami juga melihat perbedaan dan banyaknya pengiriman Lazada, Grab dan Foodpanda. Kami akhirnya memasang kamera CCTV di dalam gudang, dan karyawan itu berhenti kerja setelahnya. Rupanya, dia mengambil material, pengiriman uang, tanda terima dan menjual produk jadi untuk kepentingan pribadi. Kami kehilangan Rp133 juta karenanya. Dia memanfaatkan hasil jualan itu untuk membangun rumah buat keluarga dan orang tuanya. Dia bahkan mengirimi kami foto rumahnya yang sudah jadi. — Frances Abesamis, 27 tahun
+
+## “Saya memohon-mohon agar uangnya dikembalikan”
+
+Saya pergi ke mal untuk membeli topi dan sandal. Tapi begitu sudah ketemu apa yang diinginkan, saya mendadak ditarik mbak-mbak sales yang mengoleskan krim ke tanganku. Dia lalu membawaku ke toko tempat kerjanya tanpa ba-bi-bu. Dia ngotot menawarkan produk jualannya, padahal saya sudah bilang tidak punya cukup uang untuk membelinya. Orang-orang di toko itu bahkan memberikanku perawatan wajah gratis, dan berjanji akan menjadikanku model produknya. Entah bagaimana ceritanya, saya membayar hampir Rp16 juta untuk semua itu. Tapi, begitu saya tersadar telah menjadi korban sales manipulatif, saya memohon-mohon agar uangnya dikembalikan sambil sesenggukan. Mereka akhirnya sepakat mengembalikan 80 persen uangku, yang artinya saya tetap kehilangan Rp2 juta. — Anonim
